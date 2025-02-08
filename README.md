@@ -22,4 +22,4 @@ My coolest achievement I am the most proud of is developing for GoDaddy's part o
 
 You can reach me out at dennisjob dot com 
 
-I adore music and love playing any musical instruments I can get my hands on. Creativity is my middle name basically in anything I do :)
+I adore music and love playing any musical instruments I can lay my hands on. Creativity is my middle name basically in anything I do :)

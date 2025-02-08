@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Having worked a continuous tender for GoDaddy and A2Hosting I am currently looking for my next position of a Linux System Administrator / Engineer / Web Hosting Technical Support.
+
+Meanwhile I hone and improve my skills. 
+
+My coolest achievement I am the most proud of is developing for GoDaddy's part of Confluence / Jira. I came up with a combination of jQuery / CSS / HTML / JS idea that nobody of their developers could think of. They were stuck. My code was accepted and implemented and it is still there working in action. :-)
+
+You can reach me out at dennisjob dot com 
+
+I adore music and love playing any musical instruments I can get my hands on. Creativity is my middle name basically in anything I do :)

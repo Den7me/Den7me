@@ -18,7 +18,7 @@ Having worked a continuous tender for GoDaddy and A2Hosting I am currently looki
 
 Meanwhile I hone and improve my skills. 
 
-My coolest achievement I am the most proud of is developing for GoDaddy's part of Confluence / Jira. I came up with a combination of jQuery / CSS / HTML / JS idea that nobody of their developers could think of. They were stuck. My code was accepted and implemented and it is still there working in action. :-) Yes, I am boasting / lauding myself [loading too]. 😄
+My coolest achievement I am the most proud of is developing for GoDaddy's part of Confluence / Jira. I came up with a combination of jQuery / CSS / HTML / JS idea that nobody of their developers could think of. They were stuck. My code was accepted and implemented and it is still there working in action. :-) Yes, I am boasting / lauding myself [loading in runtime too]. 😄
 
 You can reach me out at dennisjob dot com 
 

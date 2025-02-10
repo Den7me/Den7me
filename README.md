@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Having worked a continuous tender for GoDaddy and A2Hosting I am currently looking for my next position of a Linux System Administrator / Engineer / Web Hosting Technical Support. Did I say I worked for Google too as an outsourcer?
+Having worked a continuous tender for GoDaddy and A2Hosting I am currently looking for my next position of a Linux System Administrator / Engineer / Website Administrator / Web Hosting Technical Support. Did I say I worked for Google too as an outsourcer?
 
 Meanwhile I hone and improve my skills. 
 

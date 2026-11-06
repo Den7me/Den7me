@@ -30,6 +30,6 @@ Direct technical cooperation with the FBI's interception unit, including joint c
 
 My coolest IT achievement I am the most proud of is developing for GoDaddy's part of Confluence / Jira. I came up with a combination of jQuery / CSS / HTML / JS idea that nobody of their developers could think of. They were stuck. My code was accepted and implemented and it is still there working in action. :-) Yes, I am boasting / lauding myself [loading in runtime too]. 😄
 
-You can reach me out at dennisjob dot com 
+You can reach out to me at dennisjob dot com 
 
 I adore music and love playing any musical instruments I can lay my hands on. Creativity is my middle name basically in anything I do :)

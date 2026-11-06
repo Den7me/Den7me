@@ -20,7 +20,7 @@ My responsibilities extend across an internationally distributed hosting infrast
 
 I work directly and daily with FBI agents, the U.S. Department of Justice, Assistant U.S. Attorneys, federal and state law-enforcement authorities, and international law-enforcement agencies from many countries worldwide, handling approximately 5–10 matters per day. These matters involve subpoenas, search warrants, summonses, court orders, preservation requests, pen register/trap-and-trace orders, and other legal demands across U.S. federal and state jurisdictions and international legal systems.
  
-My work has earned more than 50 personal messages of appreciation from FBI agents and international law-enforcement officers for cooperation and assistance in complex investigations. References from U.S. prosecutors and law-enforcement authorities are available upon request.
+50+ personal messages of appreciation from FBI agents and international law-enforcement officers for cooperation and assistance in complex investigations. References from U.S. prosecutors and law-enforcement authorities are available upon request.
 
 My cooperation with the Brooklyn District Attorney's Office is also reflected in an official October 2026 press release acknowledging assistance in a major multinational cryptocurrency fraud investigation involving 112 servers and 241 domains.
 
